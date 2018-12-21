@@ -1,0 +1,16 @@
+C:\Users\Elizabeth\Documents\GitHub\BleedingGumsTowers\Teardrop speaker-Frequency 1
+C:\Users\Elizabeth\Documents\GitHub\BleedingGumsTowers\Teardrop speaker-Frequency 1
+C:\Users\Elizabeth\Documents\GitHub\BleedingGumsTowers\Teardrop speaker-Frequency 1
+C:\Users\Elizabeth\Documents\GitHub\BleedingGumsTowers\Teardrop speaker-Frequency 1
+C:\Users\Elizabeth\Documents\GitHub\BleedingGumsTowers\Teardrop speaker-Frequency 1
+C:\Users\Elizabeth\Documents\GitHub\BleedingGumsTowers\Teardrop speaker-Frequency 1
+C:\Users\Elizabeth\Documents\GitHub\BleedingGumsTowers\Teardrop speaker-Frequency 1
+C:\Users\Elizabeth\Documents\GitHub\BleedingGumsTowers\Teardrop speaker-Frequency 1
+C:\Users\Elizabeth\Documents\GitHub\BleedingGumsTowers\Teardrop speaker-Frequency 1
+C:\Users\Elizabeth\Documents\GitHub\BleedingGumsTowers\Teardrop speaker-Frequency 1
+C:\Users\Elizabeth\Documents\GitHub\BleedingGumsTowers\Teardrop speaker-Frequency 1
+C:\Users\Elizabeth\Documents\GitHub\BleedingGumsTowers\Teardrop speaker-Frequency 1
+C:\Users\Elizabeth\Documents\GitHub\BleedingGumsTowers\Teardrop speaker-Frequency 1
+C:\Users\Elizabeth\Documents\GitHub\BleedingGumsTowers\Teardrop speaker-Frequency 1
+C:\Users\Elizabeth\Documents\GitHub\BleedingGumsTowers\Teardrop speaker-Frequency 1
+C:\Users\Elizabeth\Documents\GitHub\BleedingGumsTowers\Teardrop speaker-Frequency 1
